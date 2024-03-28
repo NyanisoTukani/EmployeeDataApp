@@ -1,4 +1,4 @@
-#This code is created by Nyaniso Tukai
+#This code is created by Nyaniso Tukani
 #Contact details : 0680304748
 #Email : xolilizwenyaniso7@gmail.com
 #Linkedin Link : https://www.linkedin.com/in/nyaniso-tukani-18898827b/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3BH%2BqWgfWWQSW%2BkfPBMSfAdQ%3D%3D
